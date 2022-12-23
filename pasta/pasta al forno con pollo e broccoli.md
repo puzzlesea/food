@@ -1,4 +1,4 @@
-#Pasta al forno con pollo e broccoli
+# Pasta al forno con pollo e broccoli
 
 2 cups cooked chicken
 1 onion, chopped into ~2 cm2 pieces
@@ -26,7 +26,7 @@ Optional: tomatoes, mustard, other cheeses, ricotta cheese, shallots, etc. See V
 7.	Add the chicken, broccoli and red peppers (and the optional tomatoes and ricotta cheese) to the pasta. Spoon the pasta mixture into the baking dish. Strew the remaining mozzarella and parmigiano cheese on top. Cover with breadcrumbs and dot with butter or drizzle with olive oil.
 8.	Bake for ~45 minutes until bubbling and the top is browned.
 
-###Variations:
+### Variations:
 •	Soften minced shallots in the butter before adding flour to make a roux
 •	Add tomatoes or Dijon mustard to the béchamel sauce
 •	Add ricotta cheese to the chicken, broccoli and red peppers
