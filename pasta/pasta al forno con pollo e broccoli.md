@@ -1,19 +1,19 @@
 # Pasta al forno con pollo e broccoli
 
-2 cups cooked chicken
-1 onion, chopped into ~2 cm2 pieces
-Olive oil
-Paprika
-1 lb broccoli, cut into bite-sized florets
-1 red pepper, cut into ~2 cm × 2cm squares
-1 lb pasta (fusilli, penne, eliche), or slightly more
-4 tbsp butter
-3 tbsp flour
-3-4 cups milk
-A pinch nutmeg
-1 cup grated Parmigiano Reggiano
-1 cup grated mozzarella cheese or other hard cheese
-2 tbsp breadcrumbs
+- 2 cups cooked chicken
+- 1 onion, chopped into ~2 cm2 pieces
+- Olive oil
+- Paprika
+- 1 lb broccoli, cut into bite-sized florets
+- 1 red pepper, cut into ~2 cm × 2cm squares
+- 1 lb pasta (fusilli, penne, eliche), or slightly more
+- 4 tbsp butter
+- 3 tbsp flour
+- 3-4 cups milk
+- A pinch nutmeg
+- 1 cup grated Parmigiano Reggiano
+- 1 cup grated mozzarella cheese or other hard cheese
+- 2 tbsp breadcrumbs
 
 Optional: tomatoes, mustard, other cheeses, ricotta cheese, shallots, etc. See Variations below.
 
