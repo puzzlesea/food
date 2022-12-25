@@ -27,8 +27,8 @@ Optional: tomatoes, mustard, other cheeses, ricotta cheese, shallots, etc. See V
 8.	Bake for ~45 minutes until bubbling and the top is browned.
 
 ### Variations:
-•	Soften minced shallots in the butter before adding flour to make a roux
-•	Add tomatoes or Dijon mustard to the béchamel sauce
-•	Add ricotta cheese to the chicken, broccoli and red peppers
-•	Add other cheeses to the sauce: grated hard cheeses; e.g., pecorino, gruyere, Emmental, any old cheese that needs to be used.
-•	Add a few chopped tomatoes with the red pepper
+- Soften minced shallots in the butter before adding flour to make a roux
+- Add tomatoes or Dijon mustard to the béchamel sauce
+- Add ricotta cheese to the chicken, broccoli and red peppers
+- Add other cheeses to the sauce: grated hard cheeses; e.g., pecorino, gruyere, Emmental, any old cheese that needs to be used.
+- Add a few chopped tomatoes with the red pepper
