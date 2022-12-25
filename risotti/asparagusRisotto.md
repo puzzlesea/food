@@ -10,7 +10,7 @@
 - 2 tbsp olive oil
 - 2 tbsp + 1 tbsp butter
 - ½ cup white wine
-- 1 cup parmegiano Reggiano, grated
+- 1 cup parmigiano Reggiano, grated
 
 
 1.	Wash the asparagus, trim the ends and cut into 1” pieces. Divide into 3 groups: the tougher bottoms, the mid sections and the tips.
