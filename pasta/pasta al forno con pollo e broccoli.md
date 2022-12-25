@@ -6,7 +6,7 @@
 - Paprika
 - 1 lb broccoli, cut into bite-sized florets
 - 1 red pepper, cut into ~2 cm × 2cm squares
-- 1 lb pasta (fusilli, penne, eliche), or slightly more
+- 1 lb pasta (eliche, fusilli, penne), or slightly more
 - 4 tbsp butter
 - 3 tbsp flour
 - 3-4 cups milk
