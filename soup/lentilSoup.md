@@ -1,19 +1,18 @@
 # Lentil Soup
 
-3 tbsp olive oil
-1 small onion
-1.5 cups red lentils
-½ cup Italian rice
-3 cups water
-4 cups chicken stock or chicken bouillon powder
-
-½ tsp salt
-¼ tsp ground cumin (optional)
-¼ tsp pepper
-2 tbsp chopped combination of one or more of parsley, chives, lovage, etc.
-2 green onions, chopped (optional)
-1 tsp lemon juice
-Sour cream (optional)
+- 3 tbsp olive oil
+- 1 small onion
+- 1.5 cups red lentils
+- ½ cup Italian rice
+- 3 cups water
+- 4 cups chicken stock or chicken bouillon powder
+- ½ tsp salt
+- ¼ tsp pepper
+- - ¼ tsp ground cumin (optional)
+- 2 tbsp chopped combination of one or more of parsley, chives, lovage, etc.
+- 2 green onions, chopped (optional)
+- 1 tsp lemon juice
+- Sour cream (optional)
 
 
 1.	In a large pot, sauté the onion in oil until brown.
