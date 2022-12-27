@@ -8,7 +8,7 @@
 - 4 cups chicken stock or chicken bouillon powder
 - ½ tsp salt
 - ¼ tsp pepper
-- - ¼ tsp ground cumin (optional)
+- ¼ tsp ground cumin (optional)
 - 2 tbsp chopped combination of one or more of parsley, chives, lovage, etc.
 - 2 green onions, chopped (optional)
 - 1 tsp lemon juice
