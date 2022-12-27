@@ -15,8 +15,8 @@
 - Sour cream (optional)
 
 
-1.	In a large pot, sauté the onion in oil until brown.
-2.	Place lentils and rice in a sieve and rinse them thoroughly.
+1.	In a large pot, sauté the onion in oil until translucent.
+2.	Wash the lentils and rice in water.
 3.	Add lentils and rice to the onions, cover with 7 cups of liquid, and add bouillon powder if using. Bring to a gentle boil, stir occasionally and simmer for 45-55 minutes until lentils and rice dissolve and become creamy.
 4.	Add salt, cumin, pepper, parsley and green onions and let soup simmer for 5 minutes longer. Stir in lemon juice just before serving. Serve with sour cream.
 
