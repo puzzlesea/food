@@ -1,4 +1,4 @@
-# Pasta con Melanzane E Ricotta
+# Pasta con Melanzane e Ricotta
 
 - 1 eggplant, 1-1.5 lb
 - 3 + 3 tbsp olive oil
