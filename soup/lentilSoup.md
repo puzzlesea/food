@@ -1,7 +1,7 @@
 # Lentil Soup
 
 - 3 tbsp olive oil
-- 1 small onion
+- 1 small onion, chopped
 - 1.5 cups red lentils
 - ½ cup Italian rice
 - 3 cups water
